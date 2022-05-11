@@ -1,4 +1,4 @@
 # tukituki
 tukiiii
 
-Lee David.
+Lee David
